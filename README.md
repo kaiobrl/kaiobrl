@@ -1,6 +1,6 @@
 ## Hello, there ✌
 
-I'm currently open for new projects so you can reach me trough [WhatsApp](https://wa.me/5583987922753), [Telegram](https://t.me/formatolivre0) or [email](mailto:formatolivre1@gmail.com)
+I'm currently open for new projects so you can reach me trough [Telegram](https://t.me/formatolivre0) or [email](mailto:formatolivre1@gmail.com)
 
 ### Here's some of the stuff I like to use
 
